@@ -1,0 +1,1 @@
+# SQL_Klausur_Vorbereitung_Goorm
